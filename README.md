@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @handiw6
+👋 Hi, I’m @handiw6
